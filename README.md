@@ -1,1 +1,3 @@
-Hoi i'm Tupnuk Piki. I like cats. And programming. That's all. *kthxbye*
+Roses are red
+Violets are blue
+Idk how to rhyme anymore so it's up to you...
